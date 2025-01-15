@@ -1,2 +1,7 @@
 # blogger1
-backup del 08/01/2025
+copia de seguridad del blogger 
+cristhian ortiz
+segundo C matutino
+bonillasebas454@gmail.com
+blog: DJ en escena 
+Jusificado por bloque de programa en clase 
